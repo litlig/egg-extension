@@ -1,4 +1,4 @@
-#Privacy Policy for Egg Thrower Extension
+# Privacy Policy for Egg Thrower Extension
 
 Effective Date: 6/12/2025
 
